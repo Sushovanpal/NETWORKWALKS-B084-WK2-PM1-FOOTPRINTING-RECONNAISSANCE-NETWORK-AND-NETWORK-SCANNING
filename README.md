@@ -407,5 +407,5 @@ ns6136.hostgator.com</code></pre>
 <p>
 <strong>Name:</strong> Ifunanya Promise Adinde<br>
   
-<strong>LinkedIn:</strong> <a href="https://www.linkedin.com/in/ifunanya-promise-adinde-95354140a">linkedin.com/in/ifunanya-promise-adinde-95354140a</a>
+<strong>LinkedIn:</strong> <a href="https://www.linkedin.com/feed/update/urn:li:activity:7527248976660766720/">linkedin.com/in/ifunanya-promise-adinde-95354140a</a>
 </p>
